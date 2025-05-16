@@ -1,0 +1,1 @@
+# testes_sensores_16-05-2025
